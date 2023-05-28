@@ -4,7 +4,7 @@
 
   <img src="https://emoji.discord.st/emojis/768b108d-274f-4f44-a634-8477b16efce7.gif" width="25">
 
-  &nbsp;WELLCOME TO MY WORLD&nbsp;
+  &nbsp;WLLCOME TO MY FUCK WORLD&nbsp;
 
   <img src="https://emoji.discord.st/emojis/768b108d-274f-4f44-a634-8477b16efce7.gif" width="25">
 
@@ -16,13 +16,13 @@
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-1.svg">
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?color=%23F70B10&size=27&lines=I+Am+ZOKER+ADIB;+Not+A+H4CKR;+Jast's+A+Old+Spammer;Thank+You+Everyone+Love+U+All)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?color=%23F70B10&size=27&lines=I+Am+ZOKER+ADIB;+Not+A+H4CKR;+Jast's+A+Old+Spammer;I+LOVE+PYTHON+Love+U+My+Heaters)](https://git.io/typing-svg)
 
 </p>
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-1.svg">
 
-![Profile views](https://gpvc.arturio.dev/Zokeradib)  
+![Profile views](https://gpvc.arturio.dev/N41M01)  
 
 <h3 align="left">ABOUT ME:</h3>
 
@@ -30,19 +30,19 @@
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
-- 😏 𝐍𝐀𝐌𝐄:-  AHMED ADIB
+- 😏 𝐍𝐀𝐌𝐄:- AHMED ADIB
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
-- 😎 𝐀𝐆𝐄:- 18 
+- 😎 𝐀𝐆𝐄:- 20 
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
-- 📕 𝐄𝐃𝐔𝐂𝐀𝐓𝐈𝐎𝐍:- Honors 1st year
+- 📕 𝐄𝐃𝐔𝐂𝐀𝐓𝐈𝐎𝐍:- STUDENT OF ARABIC COLLAGE
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
-- ❤ 𝐋𝐎𝐕𝐄𝐑:- FAMILY
+- ❤ 𝐋𝐎𝐕𝐄𝐑:- MY LIFE 
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
@@ -58,23 +58,23 @@
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
-- 💻𝐆𝐈𝐓𝐇𝐔𝐁:- [It's Adib](https://github.com/Zokeradib)
+- 💻𝐆𝐈𝐓𝐇𝐔𝐁:- [Zoker-Adib-404](https://github.com/Zokeradib)
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
 <h2><img width="28" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/icons/icon-contact.png" /><i> Connect With Me :</i></h2>
 
-#[![Instagram](https://img.shields.io/badge/Instagram-%40DEVIL?style=for-the-badge&logo=instagram)](https://www.instagram.com/devil.najmul)
+[![Instagram](https://img.shields.io/badge/Instagram-%40ADIB?style=for-the-badge&logo=instagram)](https://www.instagram.com/ahmedadib-03)
 
-[![Facebook](https://img.shields.io/badge/Facebook-green?style=for-the-badge&logo=facebook)](https://fb.com/Zokeradib)
+[![Facebook](https://img.shields.io/badge/Facebook-green?style=for-the-badge&logo=facebook)](https://www.facebook.com/ahmedadib055)
 
 [![Messenger](https://img.shields.io/badge/Chat-Messenger-blue?style=for-the-badge&logo=messenger)](https://m.me/ahmedadib055)
 
-[![Github](https://img.shields.io/badge/Github-DEVIL-green?style=for-the-badge&logo=github)](https://github.com/Zokeradib)
+[![Github](https://img.shields.io/badge/Github-AHMED-green?style=for-the-badge&logo=github)](https://github.com/Zokeradib)
 
 <h3 align="left">TROPHY:</h3>
 
-[![trophy](https://github-profile-trophy.vercel.app/?username=Zokeradib)](https://github.com/ryo-ma/github-profile-trophy)
+[![trophy](https://github-profile-trophy.vercel.app/?username=Ahmed Adib)](https://github.com/ryo-ma/github-profile-trophy)
 
 <h3 align="left">Languages and Skills:</h3>
 
@@ -110,40 +110,27 @@
 
 <img src="https://github.com/MRVIVEK-CODER/Decompiler/blob/main/106824690-8dd73a00-66ad-11eb-89e2-53e13ac6f594.gif" alt="" border="0" />
 
-<a href="https://www.github.com/Zokeradib" target="_blank" rel="noreferrer"><img
+<a href="https://www.github.com/AD1B" target="_blank" rel="noreferrer"><img
 
-src="https://img.shields.io/github/followers/Zokeradib?logo=github&style=for-the-badge&color=0891b2&labelColor=000000" /></a>
+src="https://img.shields.io/github/followers/AD1B?logo=github&style=for-the-badge&color=0891b2&labelColor=000000" /></a>
 
 ### Badges :
 
 <b>My GitHub States :</b>
 
-<a href="http://www.github.com/Zokeradib"><img src="https://github-readme-streak-stats.herokuapp.com/?user=Zokeradib&stroke=ffffff&background=000000&ring=ffffff&fire=ffffff&currStreakNum=ffffff&currStreakLabel=ffffff&sideNums=ffffff&sideLabels=ffffff&dates=ffffff&hide_border=true" /></a>
+<a href="http://www.github.com/N41M01"><img src="https://github-readme-streak-stats.herokuapp.com/?user=AD1B&stroke=ffffff&background=000000&ring=ffffff&fire=ffffff&currStreakNum=ffffff&currStreakLabel=ffffff&sideNums=ffffff&sideLabels=ffffff&dates=ffffff&hide_border=true" /></a>
 
-<a href="http://www.github.com/Zokeradib"><img src="https://github-readme-activity-graph.cyclic.app/graph?username=Zokeradib&bg_color=000000&color=ffffff&line=0891b2&point=ffffff&area_color=000000&area=true&hide_border=true&custom_title=GitHub%20Commits%20Graph" alt="GitHub Commits Graph" /></a>
+<a href="http://www.github.com/N41M01"><img src="https://github-readme-activity-graph.cyclic.app/graph?username=AD1B&bg_color=000000&color=ffffff&line=0891b2&point=ffffff&area_color=000000&area=true&hide_border=true&custom_title=GitHub%20Commits%20Graph" alt="GitHub Commits Graph" /></a>
 
-<a href="https://github.com/Zokeradib" align="left"><img src="https://github-readme-stats.vercel.app/api/top-langs/?username=Zokeradib&langs_count=10&title_color=ffffff&text_color=ffffff&icon_color=0891b2&bg_color=000000&hide_border=true&locale=en&custom_title=Top%20%Languages" alt="Top Languages" /></a>
+<a href="https://github.com/N41M01" align="left"><img src="https://github-readme-stats.vercel.app/api/top-langs/?username=AD1B&langs_count=10&title_color=ffffff&text_color=ffffff&icon_color=0891b2&bg_color=000000&hide_border=true&locale=en&custom_title=Top%20%Languages" alt="Top Languages" /></a>
 
 ![GitHub metrics](https://metrics.lecoq.io/Zokeradib)  
 
 <b>Top Repositories</b>
 
-<div width="100%" align="center"><a href="https://github.com/Zokeradib/Utpalx" align="left"><img align="left" width="45%" src="https://github-readme-stats.vercel.app/api/pin/?username=Zokeradib&repo=Utpalx&title_color=ffffff&text_color=ffffff&icon_color=0891b2&bg_color=000000&hide_border=true&locale=en" /></a><a href="https://github.com/Zokeradib/RANDOM-U0.2" align="right"><img align="right" width="45%" src="https://github-readme-stats.vercel.app/api/pin/?username=Zokeradib&repo=RANDOM-U0.2&title_color=ffffff&text_color=ffffff&icon_color=0891b2&bg_color=000000&hide_border=true&locale=en"
+<div width="100%" align="center"><a href="https://github.com/Zokeradib/Utpalx" align="left"><img align="left" width="45%" src="https://github-readme-stats.vercel.app/api/pin/?username=N41M01&repo=Utpalx&title_color=ffffff&text_color=ffffff&icon_color=0891b2&bg_color=000000&hide_border=true&locale=en" /></a><a href="https://github.com/N41M01/RANDOM-U0.2" align="right"><img align="right" width="45%" src="https://github-readme-stats.vercel.app/api/pin/?username=N41M01&repo=RANDOM-U0.2&title_color=ffffff&text_color=ffffff&icon_color=0891b2&bg_color=000000&hide_border=true&locale=en"
 
-<div width="100%" align="center"><a href="https://github.com/Zokeradib/Facebook-BruteForce" align="left"><img align="left" width="45%" src="https://github-readme-stats.vercel.app/api/pin/?username=Zokeradib&repo=Facebook-BruteForce&title_color=ffffff&text_color=ffffff&icon_color=0891b2&bg_color=000000&hide_border=true&locale=en" /></a><a href="https://github.com/Zokeradib/Target-ID420" align="right"><img align="right" width="45%" src="https://github-readme-stats.vercel.app/api/pin/?username=Zokeradib&repo=Target-ID420&title_color=ffffff&text_color=ffffff&icon_color=0891b2&bg_color=000000&hide_border=true&locale=en" /></a></div>
-
-
-
-
-
-
-
-
-
-
-
-
-
+<div width="100%" align="center"><a href="https://github.com/Zokeradib/Facebook-BruteForce" align="left"><img align="left" width="45%" src="https://github-readme-stats.vercel.app/api/pin/?username=AD1&repo=Facebook-BruteForce&title_color=ffffff&text_color=ffffff&icon_color=0891b2&bg_color=000000&hide_border=true&locale=en" /></a><a href="https://github.com/N41M01/Target-ID420" align="right"><img align="right" width="45%" src="https://github-readme-stats.vercel.app/api/pin/?username=N41M01&repo=Target-ID420&title_color=ffffff&text_color=ffffff&icon_color=0891b2&bg_color=000000&hide_border=true&locale=en" /></a></div>
 
 
 
